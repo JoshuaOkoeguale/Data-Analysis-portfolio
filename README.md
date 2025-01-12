@@ -63,5 +63,7 @@ MY SKILLS (CORE)
 - ✅ Problem-Solving & Critical Thinking. - ✅ Strategic Planning & Decision Making. - ✅ Communication & Data Storytelling. - ✅ Collaboration & Teamwork. - ✅ Adaptability & Continuous Learning. - ✅ Attention to Detail & Accuracy. - ✅ Time Management & Prioritization. - ✅ Client Relationship Management.
 
 CONTACT DETAILS
+Email : joshuaokoeguale@gmail.com 
+Phone number: +2348167584553
 
 Let’s connect and see how we can make a difference together!
